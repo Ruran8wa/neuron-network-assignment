@@ -1,3 +1,3 @@
 #Neuron Assignment
 
-Prince Rurangwa - Akoto Christinecl
+Prince Rurangwa - Akoto Christine
